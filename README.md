@@ -1,1 +1,25 @@
-# THE-BREAKER-NEW-WAVES
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-36.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-37.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2038.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-39.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2040.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-41.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2042.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2043.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2044.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-45.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2046.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2047.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2048.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-49.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-50.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-51.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-52.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2053.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2054.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-55.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-56.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-57.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-58.CBZ
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter%2059.cbz
+https://github.com/Ivan010619/THE-BREAKER-NEW-WAVES/raw/refs/heads/main/Chapter-60.CBZ
